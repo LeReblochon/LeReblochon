@@ -1,2 +1,3 @@
-I'm an autistic cheese\n
+I'm an autistic cheese
+
 i like planes
